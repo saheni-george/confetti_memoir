@@ -1,0 +1,13 @@
+# Summer
+
+The first day of summer. Things are changing. Things are always changing. If there is any one truth about existence as we experience it, it is that everything changes. As spring moves into summer, so the small frog becomes a bigger frog. He has no choice. He may like it in the water or he may prefer being out, it doesn't matter- along with all of Nature, he is moving into summer.
+
+In the Buddhist tradition, it is said that the Buddha taught how to become free of the cycle of life and death. First, he reminded us that suffering results from attachments. Then he said that attachments can be released through "mindfulness" - through being fully awake to the truth of things. When all attachments are released we live beyond the cycle of life and death. Does this mean that we won't grow like the frog from small to big, won't be half in and half out of the water, won't live within the round of the seasons, the cycle of Nature? Not at all. Like the frog, we will come into existence, we will change in form, we will be subject to the elements, we will be cold in winter and warm in summer, and we will pass out of existence. But by being completely awake, completely mindful, we won't be attached in the mind to any of it.
+
+The warmth of the sun on one's face on the first day of summer.. just the warmth on one's face. 
+
+So the idea of birth and death, and the constellation of ideas that is built on that idea, are released through mindfulness, through paying attention to *just this* as it arises and fades away. Most especially, what is released is the attachment to the notion of a fixed and permanent self. As that attachment is loosened and released, as each experience of *self* is seen to be no more than a chrysalis which we fill with ideas but which itself is essentially empty, the idea of the birth of a self and the death of that self is also released. We move from having taken our life into our own to realising that we are always in God's hands. 
+
+This appears to be the central lesson of the Christian story of the resurrection. Jesus wasn't wounded and killed and then, with the blood barely dry on him, walking around three days later. That would just be a superstitious folktale. If one reflects on it, the story of Jesus teaches that as we let go of attachments, we yield our idea of a self, and so then die into life. 
+
+Do you feel more relaxed as you open your mind to the vastness of awareness? Can you see that everything floats free?
