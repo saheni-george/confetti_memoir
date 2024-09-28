@@ -6,7 +6,8 @@ The richness of the problem of time is precisely that we can start addressing it
 My interest in time didn’t start with Augustine. It grew from the surprise learning that physics shows that our common ideas about time do not work well for the real world, as soon as we study it with more precision. The precise time of the clocks is something different from the time of our experience.
 
 After a long detour, however, I have indeed ended up thinking that Augustine is basically right: what we call ‘time’ in our everyday life, the time of our experience, has something to do with clocks, but much more to do with what happens in our brain and in our emotions.
-Your new book, The Order of Time, describes that detour. It takes us through the insights of Aristotle, Newton and Einstein and others. What are some of crucial junctions and turning points?
+
+## Your new book, The Order of Time, describes that detour. It takes us through the insights of Aristotle, Newton and Einstein and others. What are some of crucial junctions and turning points?
 
 The first are the big surprises from the physics of the last two centuries. I describe three of them: first, time passes at different speed depending where you are: you age faster up in the mountains than down by the sea; second, the notion of the ‘present’ only makes sense in a bubble around us, there is no ‘present’ objectively defined all over the universe; third, the distinction between past and future is only statistical and due to our incomplete knowledge of the world. These are facts that have been discovered and confirmed. Each of them demolishes one aspect of our common understanding of time. That common understanding, where time is unique, the same all over the universe and the future is fundamentally different from the past, is adequate for our daily life, but is inadequate for understanding the nature at large.
 
@@ -19,7 +20,8 @@ The concept of time that Newton used in building mechanics is equally inadequate
 ## Each chapter of The Order of Time opens with verses from your first book choice, the Odes of Horace. What do you value in this poet of ancient Rome?
 
 I have a passion for Horace. A dear friend of my youth, who is not with us anymore, gave me as a gift, long ago, a small book with a choice of Horace’s Odes [note: Rovelli is referring to In questo breve cerchio, which contains Italian translations by Giulio Galetto]. I have been carrying this with me since ever, and re-reading it often. Horace is probably the greatest poet in Latin, and has many sides. There is an aulic, or courtly, aspect of his poetry, which I dislike, and is related to his official role of poet of the empire. But then there is an intimate and lyrical side of him which is marvellous, because it merges the clarity and concreteness of his visual, colourful, classical style, with a subtle modulation of universal sentiments which are deeply human — above all the soft melancholy of the running away of time. Horace is the great cantor of time, of the effect of the flight of time upon our deepest emotions. There is nothing screaming in him, no romantic exaggeration, and yet there is an intensity of emotion that reaches deep inside us and seems to capture the essence of what is to be human, and mortal. Consider this:
-``
+
+```
 Perhaps God has many more seasons
 in store for us
 or perhaps the last is to be
@@ -31,7 +33,7 @@ the rough pumice cliffs.
 You must be wise. Pour the wine
 and enclose in this brief circle
 your long-cherished hope.
-``
+```
 
 ## Your second choice is In Search of Lost Time. What does Marcel Proust bring to our understanding of time?
 
