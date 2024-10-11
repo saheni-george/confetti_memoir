@@ -34,3 +34,7 @@
 >> *The Book of Disquiet - Fernando Pessoa*
 ----
 
+> “Read poetry every day of your life. Poetry is good because it flexes muscles you don’t use often enough. Poetry expands the senses and keeps them in prime condition. It keeps you aware of your nose, your eye, your ear, your tongue, your hand. And, above all, poetry is compacted metaphor or simile. Such metaphors, like Japanese paper flowers, may expand outward into gigantic shapes. Ideas lie everywhere through the poetry books, yet how rarely have I heard short story teachers recommending them for browsing.
+> What poetry? Any poetry that makes your hair stand up along your arms. Don’t force yourself too hard. Take it easy. Over the years you may catch up to, move even with, and pass T. S. Eliot on your way to other pastures. You say you don’t understand Dylan Thomas? Yes, but your ganglion does, and your secret wits, and all your unborn children. Read him, as you can read a horse with your eyes, set free and charging over an endless green meadow on a windy day.”
+>> *Ray Bradbury, Zen in the Art of Writing: Releasing the Creative Genius Within You*
+----

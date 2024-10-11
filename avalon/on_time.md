@@ -1,4 +1,6 @@
 # on time 
+Last week, I broke up with my girlfriend of seven years. # talk about standing under the tree and having a conversation, the time of our experience and seeing the fragments of time exists as I walk by the tree again. Some version of me remains under the tree, voice insistent, angry but sad trying to reason across the gulf of distance.
+
 
 In the Confessions, Augustine suggested that time — at least as we experience it — is nothing other than the tension of consciousness itself.
 
