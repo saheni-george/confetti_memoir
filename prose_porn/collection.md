@@ -38,3 +38,6 @@
 > What poetry? Any poetry that makes your hair stand up along your arms. Don’t force yourself too hard. Take it easy. Over the years you may catch up to, move even with, and pass T. S. Eliot on your way to other pastures. You say you don’t understand Dylan Thomas? Yes, but your ganglion does, and your secret wits, and all your unborn children. Read him, as you can read a horse with your eyes, set free and charging over an endless green meadow on a windy day.”
 >> *Ray Bradbury, Zen in the Art of Writing: Releasing the Creative Genius Within You*
 ----
+
+> I would recognize you in total darkness, were you mute and I deaf. I would recognize you in another lifetime entirely, in different bodies, in different times. And I would love you in all of this, until the very last star in the sky burnt out into oblivion. -Achilles to Patroclus
+----
