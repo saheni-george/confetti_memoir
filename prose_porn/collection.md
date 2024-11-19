@@ -1,7 +1,7 @@
 # beginnings
 
 > Past the flannel plains and blacktop graphs and skylines of canted rust, and past the tobacco-brown river overhung with weeping trees and coins of sunlight through them on the water downriver, to the place beyond the windbreak, where untilled fields simmer shrilly in the A.M. heat: shattercane, lamb's-quarter, cutgrass, sawbrier, nutgrass, jimsonweed, wild mint, dandelion, foxtain, muscadine, spine-cabbage, goldenrod, creeping charlie, butter-print, nightshade, ragweed, wild oat, vetch, butcher grass, invaginate volunteer beans, all heads gently nodding in a morning breeze like a mother's soft hand on your cheek. An arrow of starlings fired from the windbreak's thatch. The glitter of dew that stays where it is and steams all day. A sunflower, four more, one bowed, and horses in the distance standing rigid and still as toys. All nodding. Electric sounds of insects at their business. Ale-colored sunshine and pale sky and whorls of cirrus so high they cast no shadow. Insects all business all the time. Quartz and chert and schist and chondrite iron scabs in granite. Very old land. Look around you. The horizon trembling, shapeless. We are all of us brothers.
->> *The Pale King - David Foster Wallace* 
+>> *The Pale King - David Foster Wallace*
 
 ----
 

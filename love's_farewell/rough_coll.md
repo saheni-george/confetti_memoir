@@ -1,0 +1,25 @@
+# lyrical
+
+The sun was starting to set, casting a golden hue over the grassy meadow. We had driven up the winding hill in my old car, taking the familiar turns that felt like they were part of us. The road snaked through dense clusters of rhododendron trees, their red flowers swaying in the breeze like silent spectators to our story. It was our favorite spot. We had been there many times, but that day felt different, special—like everything we’d ever done led up to it.
+
+You wore that gray turtleneck sweater, the one you said made you feel cozy, wrapping yourself in its soft folds like a shield. Milo, our dog, was running around, chasing shadows in the fading light. His carefree joy felt like it belonged to another world, one far simpler than ours, but it was comforting, grounding. You laughed when he nearly toppled you over, your voice carrying a lightness that I hadn't heard in months. My heart clenched when I realized how much I missed that sound.
+
+Our families were with us, too, for what we didn’t know would be the last perfect day. My mom and yours sat together, laughing about something I can’t even recall now, their voices blending with the sound of the wind in the trees. My sister was off to the side, talking to her boyfriend, sharing quiet jokes that were none of our business but still part of the moment’s fabric. We were all together, frozen in that sunset, as if the universe had decided to give us one last gift. A fleeting perfect world.
+
+We made a fire. The crackling embers mirrored something inside me, something burning low but steady—like the love we tried to salvage. We sat there, side by side, our fingers occasionally brushing but never fully reaching out. The warmth of the flames didn’t reach the spaces between us, and yet, we still whispered promises into the twilight. I don't remember the exact words we said. Maybe it was the usual: "We’ll figure it out," or "Things will be okay." Maybe those words were just a temporary balm to soothe the ache that had been festering for too long. I didn’t know then that I had already lost you. Or maybe I did, and I just didn’t want to admit it.
+
+There was something about that day that felt like a photograph—timeless, perfect in a way that real life never truly is. We took so many photos, didn’t we? You insisted on documenting every little moment, every smile, every stray lock of hair that the wind caught. And I was happy to oblige, freezing those moments in frames that would later become heavy memories. I remember the sun dipping lower and lower, casting long shadows over the meadow. You stood with your back to the light, your silhouette sharp and clear against the golden horizon. I thought about how, in that moment, you were both there and already gone, existing in my memory even as we stood side by side.
+
+The drive back home was quiet, the day slowly slipping away like sand through my fingers. Twilight came, that strange time between day and night when everything feels more profound, more fragile. We didn’t speak much, just exchanged glances now and then, your face lit by the soft glow of the dashboard lights. I kept replaying the day in my head, knowing that it was already part of the past, that no matter how hard I tried, I couldn’t pull it back into the present.
+
+You tried, I know you did. For two long years after everything shattered, you tried to piece us back together. I gave you all of me—the phone calls, the passwords, the conversations that peeled back every layer of our fractured trust. But something had been lost, something too fragile to hold, even though we both reached for it time and time again. When you finally said you couldn’t love me the way you wanted to, I understood. I had hoped, but I understood. You deserved a love that didn’t carry the weight of past mistakes, the kind of love that isn’t marred by the shadows of what we used to be.
+
+In some ways, I think we always knew we’d end up here. Two worlds, side by side but never quite touching. The worlds in our heads, though—they’ll always be perfect. In mine, you’re still there, wearing that gray turtleneck, laughing in the golden sunset as Milo runs circles around us. My parents and yours are still smiling, caught in a moment of easy joy. My sister is still lost in conversation with her boyfriend, and we’re still sitting by the fire, whispering promises into the night. 
+
+That world will stay with me until the day I die. It’s a world where everything worked out, where love was enough to overcome everything, where the affair never happened, and the years of trying didn’t break us. In that world, we made it. But that world only exists in my mind.
+
+As I let you go, I realize that our perfect day, our perfect world, will stay frozen in time. I’ll carry it with me, like an old photograph that fades but never really disappears. We’ll live in different worlds now, but maybe, just maybe, those worlds will intersect in dreams or quiet moments when the real world feels too heavy. 
+
+And though you’re gone, I’ll always have that day, that sunset, that perfect version of us. It’s bittersweet, but it’s enough. 
+
+For now.
