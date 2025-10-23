@@ -1,0 +1,27 @@
+# rough 
+
+“Every generation thinks it’s special—my grandparents because they remember World War II, my parents because of discos and the moon. We have the Internet. Millions and billions of doors we can open and shut, posting ourselves into profiles and digital scrapbooks. Suddenly and totally, we’re threaded together in a network so terrifyingly colossal that we can finally see our terrifyingly tiny place in it. But we’re all individuals. It’s beaten into us in MLK Day assemblies (one person can make a difference!) and fourth-grade poster projects (what do you want to be when you grow up?). We can be anything! Our parents are divorced but we’re in love! Vaguely, quietly, we know we’ll be famous. For being president, for starring in a movie, for writing a feature at eighteen in the New York Times.
+
+I’m so jealous. Unthinkable jealousies, jealousies of the Pulitzer Prize–winning novel I’m reading and the Oscar-winning movie I just saw. Why didn’t I think to rewrite Mrs. Dalloway? I should have thought to chronicle a schizophrenic ballerina. It’s inexcusable. Everyone else is so successful, and I hate them. There’s a German word I learned about in psychology class called schadenfreude, which “which means a pleasure derived from the misfortune of others. The word flips into my head like a shaming pop-up when a girl doesn’t get the internship either or a boy’s show is bad. I was lying in bed the other night wondering whether the Germans created a word for its opposite when I realized that the displeasure derived from the fortune of others is easier to spell. I should have thought to coin its green eyes.
+
+I blame the Internet. Its inconsiderate inclusion of everything. Success is transparent and accessible, hanging “down where it can tease but not touch us. We talk into these scratchy microphones and take extra photographs but I still feel like there are just SO MANY PEOPLE. Every day, 1,035.6 books are published; sixty-six million people update their status each morning. At night, aimlessly scrolling, I remind myself of elementary school murals. One person can make a difference! But the people asking me what I want to be when I grow up don’t want me to make a poster anymore. They want me to fill out forms and hand them rectangular cards that say HELLO THIS IS WHAT I DO.
+
+I went to an arts conference in Manhattan last spring and everyone was scrambling to meet everyone, asserting their individuality like sad salesmen. This is my idea, I would say, this is my thing. We stood in cocktail circles and exchanged earnest interest. Hoo, hoo! Open spaces! Ohh yes! The avant garde! I didn’t have a business card. It didn’t even occur to me. It might have been funny or endearing but I ended up just being embarrassed. I don’t have one, I’d say again and again. (Ha Ha!) Then I’d sit down for another “panel to take notes and nod. There were so many people there. There are just so many people.
+
+The thing is, someday the sun is going to die and everything on Earth will freeze. This will happen. Even if we end global warming and clean up our radiation. The complete works of William Shakespeare, Monet’s lilies, all of Hemingway, all of Milton, all of Keats, our music libraries, our library libraries, our galleries, our poetry, our letters, our names etched in desks. I used to think printing things made them permanent, but that seems so silly now. Everything will be destroyed no matter how hard we work to create it. The idea terrifies me. I want tiny permanents. I want gigantic permanents! I want what I think and who I “am captured in an anthology of indulgence I can comfortingly tuck into a shelf in some labyrinthine library.
+
+Everyone thinks they’re special—my grandma for her Marlboro commercials, my parents for discos and the moon. You can be anything, they tell us. No one else is quite like you. But I searched my name on Facebook and got eight tiny pictures staring back. The Marina Keegans with their little hometowns and relationship statuses. When we die, our gravestones will match. HERE LIES MARINA KEEGAN, they will say. Numbers one, two, three, four, five, six, seven, eight.
+
+I’m so jealous. Laughable jealousies, jealousies of everyone who might get a chance to speak from the dead. I’ve zoomed out my timeline to include the apocalypse, and, religionless, I worship the potential for my own tangible trace. How presumptuous! To assume specialness in the first place. As I age, I can see the possibilities fade from the fourth-grade displays: it’s too late to be a doctor, to star in a movie, to run for president. There’s a really good chance I’ll never do anything. It’s selfish and self-centered to consider, but it scares me. “Sometimes I think about what it would be like if there was actually peace. The whole planet would be super sustainable: windmills everywhere, solar-paneled do-bops, clean streets. Before the world freezes and goes dark, it would be perfect. The generation flying its tiny cars would think itself special. Until one day, vaguely, quietly, the sun would flicker out and they’d realize that none of us are. Or that all of us are.
+
+I read somewhere that radio waves just keep traveling outward, flying into the universe with eternal vibrations. Sometime before I die I think I’ll find a microphone and climb to the top of a radio tower. I’ll take a deep breath “and close my eyes because it will start to rain right when I reach the top. Hello, I’ll say to outer space, this is my card.”
+
+
+
+
+
+
+
+
+
+

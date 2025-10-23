@@ -1,0 +1,3 @@
+# The memory 
+
+Every generation thinks they are special. My grandparents because of their memories of the Japanese and World War II. My parents remember their disco songs and hippie hairstyles and bell bottom jeans. We have the Internet and social media. These unlimited windows and doors which open into the lives of people around us and far away, posting their lives into digital memories and cute profiles to show the world. Amazingly, we are all threaded together in a relentless, colossal network which is both scary, exciting, and makes me see our tiny place in it. I remember being told in class 4 that we are all  unique and 
