@@ -41,3 +41,5 @@
 
 > I would recognize you in total darkness, were you mute and I deaf. I would recognize you in another lifetime entirely, in different bodies, in different times. And I would love you in all of this, until the very last star in the sky burnt out into oblivion. -Achilles to Patroclus
 ----
+
+There are parts of ourselves we lose in our everyday lives, paths we diverge from, people we silently say farewell to either willingly or unwillingly, and we break and grow and scab over the wounds and 
